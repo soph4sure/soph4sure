@@ -4,6 +4,6 @@
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31o4yz3yjzhjlo4b66smw7r2inkm&cover_image=true&theme=default&show_offline=true&background_color=831100&interchange=true&profanity=false&hide_remaster=false&bar_color=aaaaaa)](https://spotify-github-profile.kittinanx.com/api/view?uid=31o4yz3yjzhjlo4b66smw7r2inkm&redirect=true)  :ᛝ: [sophdeeznuts.straw.page](https://straw.page/draw#:~:text=sophdeeznuts.straw.page)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31o4yz3yjzhjlo4b66smw7r2inkm&cover_image=true&theme=default&show_offline=true&background_color=831100&interchange=true&profanity=false&hide_remaster=false&bar_color=aaaaaa)](https://spotify-github-profile.kittinanx.com/api/view?uid=31o4yz3yjzhjlo4b66smw7r2inkm&redirect=true)  :ᛝ: 𝓈𝓍7 𝓈𝓅8 𝓈𝓍4 ℰ𝒩𝒯𝒫
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵
