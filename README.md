@@ -1,12 +1,10 @@
 ︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/a32cff17-7115-4d05-8c66-84597e70787d" />
 
 <img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/9740e27f-6268-40a9-aa16-3001e2d70a61" />
-
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/8391b19f-c904-4d8b-9857-3889f4bb331c" />
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31o4yz3yjzhjlo4b66smw7r2inkm&cover_image=true&theme=default&show_offline=true&background_color=831100&interchange=true&profanity=false&hide_remaster=false&bar_color=aaaaaa)](https://spotify-github-profile.kittinanx.com/api/view?uid=31o4yz3yjzhjlo4b66smw7r2inkm&redirect=true)  :ᛝ: [sophdeeznuts.straw.page](https://straw.page/draw#:~:text=sophdeeznuts.straw.page)
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵︵︵︵ ๑ ♡ ๑ ︵︵︵
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/66f4f012-d6e3-43ae-a40d-2b09d7c02f4d" />
